@@ -7,5 +7,4 @@
 - 💬 Ask me about my goals!
 - 📫 How to reach me: [LinkedIn](www.linkedin.com/in/india-h-96943b1ab)
 - 😄 Pronouns: she/they.
-- 🎨 Fun fact: I am very passionate about all things art!
--->
+- 🎨 Fun fact: I am very passionate about learning & all things art!
